@@ -26,4 +26,4 @@ https://skins.osuck.net/index.php?newsid=1107
 https://drive.google.com/file/d/1Gxuo3LdWyAzXdOm5IIaKaMrku_Ht6mjI/view?usp=sharing
 
 i will add more later bcuz this is a lot
-sorry for inconvinience
+sorry for inconvenience
