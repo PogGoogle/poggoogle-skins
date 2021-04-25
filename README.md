@@ -25,5 +25,18 @@ https://skins.osuck.net/index.php?newsid=1107
 8. Spazza17 HR
 https://drive.google.com/file/d/1Gxuo3LdWyAzXdOm5IIaKaMrku_Ht6mjI/view?usp=sharing
 
-i will add more later bcuz this is a lot
-sorry for inconvenience
+HyperPigeon AS, WE, DD, OLD
+https://docs.google.com/spreadsheets/d/1kerQMfqSe8sp2L3Z3sQ26ZSQCadu1NrEe_YIoGOFpT4/edit?usp=sharing
+HyperPigeon AS, WE is for twitch follower only i am sorry D:
+
+owoTuna v1.4 Mathi, Selyu & Selyu+Shige
+https://skins.osuck.net/index.php?newsid=640
+
+Cozy Skin
+https://skins.osuck.net/index.php?newsid=1256
+
+Anime Assemble - Noel
+https://goo.gl/ZtqxGB
+
+Rafis 2k18 without animation
+https://skins.osuck.net/index.php?newsid=129
