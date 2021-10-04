@@ -41,4 +41,4 @@ https://goo.gl/ZtqxGB
 Rafis 2k18 without animation
 https://skins.osuck.net/index.php?newsid=129
 
-still not done D:
+will not be done bcuz alot of this are gone in my osu folder
